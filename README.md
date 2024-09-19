@@ -5,9 +5,9 @@ Il s'agissait de ma première immersion dans le monde professionnel en tant qu'A
 réaliser des livrables comme de vrais professionnels.
 J'ai suivi plusieurs cours spécifiques pour comprendre comment fonctionne la formation et comment optimiser mon apprentissage.
 
-Compétences développées : Compréhension du contexte métier, collaboration et communication avec le mentor.
+**Compétences développées** : Compréhension du contexte métier, collaboration et communication avec le mentor.
 
-Soft skills acquis : Communication, autonomie, gestion du temps.
+**Soft skills acquis** : Communication, autonomie, gestion du temps.
 
 **Commentaires de l'évaluateur**
 
