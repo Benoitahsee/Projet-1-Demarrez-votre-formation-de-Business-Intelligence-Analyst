@@ -8,3 +8,15 @@ J'ai suivi plusieurs cours spécifiques pour comprendre comment fonctionne la fo
 Compétences développées : Compréhension du contexte métier, collaboration et communication avec le mentor.
 
 Soft skills acquis : Communication, autonomie, gestion du temps.
+
+**Commentaires de l'évalateur**
+
+**Livrable**
+
+Points forts : Livrable clair et concis.
+
+**Axes d'amélioration** : Attention tout de même à l'élaboration du planning de formation qui m'a semblé un peu "aléatoire".
+
+**Soutenance**
+
+Remarques : Parfois un manque de fluidité dans les réponses et l'utilisation de l'outil, mais nous paufinerons tout ça tout au long de la formation.
