@@ -9,7 +9,7 @@ Compétences développées : Compréhension du contexte métier, collaboration e
 
 Soft skills acquis : Communication, autonomie, gestion du temps.
 
-**Commentaires de l'évalateur**
+**Commentaires de l'évaluateur**
 
 **Livrable**
 
